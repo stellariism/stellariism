@@ -1,4 +1,13 @@
-## Hi there 👋
+![tumblr_d1db0b79764561143719aa2be28324d9_82716449_1280](https://github.com/user-attachments/assets/0fec04bb-942e-43ae-8f7c-7617e05d3c0a)
+
+### Empyrean Reflection 💫
+
+![tumblr_9154eb6d6af3af3768da9d5760188448_28463e67_1280](https://github.com/user-attachments/assets/dc537c95-6ec9-4e9b-90fc-b9f6e6e1a008)
+
+![tumblr_d1db0b79764561143719aa2be28324d9_82716449_1280](https://github.com/user-attachments/assets/0fec04bb-942e-43ae-8f7c-7617e05d3c0a)
+
+Layout: [Scythidol](https://www.tumblr.com/scythidol/742054717147037696/kaveh-tumblr-layouts-for-anon)
+Divider: [Enchanthings](https://www.tumblr.com/enchanthings/748810070153887744/animated-stars-dividers-by-enchanthings)
 
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
