@@ -1,13 +1,13 @@
-![tumblr_d1db0b79764561143719aa2be28324d9_82716449_1280](https://github.com/user-attachments/assets/0fec04bb-942e-43ae-8f7c-7617e05d3c0a)
 
-### Empyrean Reflection 💫
+![Untitled718_20241202075111](https://github.com/user-attachments/assets/8c0cb9c6-26f6-4b7e-9a78-3ad0df7e802c)
 
-![tumblr_9154eb6d6af3af3768da9d5760188448_28463e67_1280](https://github.com/user-attachments/assets/dc537c95-6ec9-4e9b-90fc-b9f6e6e1a008)
+![tumblr_d6e06ab0e9060e2f93f629107e207662_30af43fc_640](https://github.com/user-attachments/assets/701d64c6-9676-4d57-9da6-1086100f433e)
 
-![tumblr_d1db0b79764561143719aa2be28324d9_82716449_1280](https://github.com/user-attachments/assets/0fec04bb-942e-43ae-8f7c-7617e05d3c0a)
+![tumblr_eaaccd1c41baf9c3ef0fb3683513558e_88b45410_500](https://github.com/user-attachments/assets/00472915-bc6e-42de-80ae-b6e8f2ed118a)
 
-Layout: [Scythidol](https://www.tumblr.com/scythidol/742054717147037696/kaveh-tumblr-layouts-for-anon)
-Divider: [Enchanthings](https://www.tumblr.com/enchanthings/748810070153887744/animated-stars-dividers-by-enchanthings)
+
+Pixel Art: [Siis-Bliss](https://www.tumblr.com/siis-bliss/768062316175638528/pixelated-this-scene-to-cope-failed)
+Divider: [Anitalenia](https://www.tumblr.com/anitalenia/748529048265850880/%F0%96%A5%94-%F0%9D%92%94%F0%9D%92%91%F0%9D%92%82%F0%9D%92%93%F0%9D%92%8C%F0%9D%92%8D%F0%9D%92%86-%F0%9D%92%88%F0%9D%92%8A%F0%9D%92%87-%F0%9D%92%85%F0%9D%92%8A%F0%9D%92%97%F0%9D%92%8A%F0%9D%92%85%F0%9D%92%86%F0%9D%92%93%F0%9D%92%94)
 
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
