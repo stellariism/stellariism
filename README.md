@@ -8,7 +8,7 @@
 
 Pixel Art: [Siis-Bliss](https://www.tumblr.com/siis-bliss/768062316175638528/pixelated-this-scene-to-cope-failed)
 Divider: [Anitalenia](https://www.tumblr.com/anitalenia/748529048265850880/%F0%96%A5%94-%F0%9D%92%94%F0%9D%92%91%F0%9D%92%82%F0%9D%92%93%F0%9D%92%8C%F0%9D%92%8D%F0%9D%92%86-%F0%9D%92%88%F0%9D%92%8A%F0%9D%92%87-%F0%9D%92%85%F0%9D%92%8A%F0%9D%92%97%F0%9D%92%8A%F0%9D%92%85%F0%9D%92%86%F0%9D%92%93%F0%9D%92%94)
-
+![](https://komarev.com/ghpvc/?ivanddal=ivanddal&color=red&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
