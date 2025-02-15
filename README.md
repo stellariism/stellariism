@@ -1,13 +1,9 @@
+<p align="center">
+<img src="https://64.media.tumblr.com/d92a86da37f8c97de0c7b98d20488593/93a47a4f0ddd4be6-91/s640x960/4f4642fb82a64e26233782a2163752889b464b49.gifv"/>
+  <div align="center">
+❛ ━━━━━━━━━━━━━━━━━━━━━━━━━━･❪ ✧ ❫ ･━━━━━━━━━━━━━━━━━━━━━━━━━━━ ❜
 
-![Untitled718_20241202075111](https://github.com/user-attachments/assets/8c0cb9c6-26f6-4b7e-9a78-3ad0df7e802c)
-
-![tumblr_d6e06ab0e9060e2f93f629107e207662_30af43fc_640](https://github.com/user-attachments/assets/701d64c6-9676-4d57-9da6-1086100f433e)
-
-![tumblr_eaaccd1c41baf9c3ef0fb3683513558e_88b45410_500](https://github.com/user-attachments/assets/00472915-bc6e-42de-80ae-b6e8f2ed118a)
-
-
-Pixel Art: [Siis-Bliss](https://www.tumblr.com/siis-bliss/768062316175638528/pixelated-this-scene-to-cope-failed)
-Divider: [Anitalenia](https://www.tumblr.com/anitalenia/748529048265850880/%F0%96%A5%94-%F0%9D%92%94%F0%9D%92%91%F0%9D%92%82%F0%9D%92%93%F0%9D%92%8C%F0%9D%92%8D%F0%9D%92%86-%F0%9D%92%88%F0%9D%92%8A%F0%9D%92%87-%F0%9D%92%85%F0%9D%92%8A%F0%9D%92%97%F0%9D%92%8A%F0%9D%92%85%F0%9D%92%86%F0%9D%92%93%F0%9D%92%94)
+Graphic credit: [shinjirx](https://www.tumblr.com/shinjirx/768007865349865473/ivan-graphics-requested-by-anon-f2u-with)
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=red&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
