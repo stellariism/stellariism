@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/d92a86da37f8c97de0c7b98d20488593/93a47a4f0ddd4be6-91/s640x960/4f4642fb82a64e26233782a2163752889b464b49.gifv"/>
   <div align="center">
-❛ ━━━━━━━━━━━━━━━━━━━━━━━━━━･❪ ✧ ❫ ･━━━━━━━━━━━━━━━━━━━━━━━━━━━ ❜
+❛ ━━━━━━━･❪ ✧ ❫ ･━━━━━━━ ❜
 
 Graphic credit: [shinjirx](https://www.tumblr.com/shinjirx/768007865349865473/ivan-graphics-requested-by-anon-f2u-with)
 
