@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/d92a86da37f8c97de0c7b98d20488593/93a47a4f0ddd4be6-91/s640x960/4f4642fb82a64e26233782a2163752889b464b49.gifv"/>
+<img src="https://64.media.tumblr.com/7a1cd36ce64976868d892f937afb9760/ecdd0b10f2a6b90c-62/s2048x3072/712ce980a295bf5cac46df819fcaae72a4392e25.pnj"/>
   <div align="center">
 ❛ ━━━━━━━･❪ ✧ ❫ ･━━━━━━━ ❜
 
-Graphic credit: [shinjirx](https://www.tumblr.com/shinjirx/768007865349865473/ivan-graphics-requested-by-anon-f2u-with)
+Basic DNI criteria, open for int! May not reply due to me being busy.
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=red&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
