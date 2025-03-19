@@ -3,7 +3,7 @@
   <div align="center">
 ❛ ━━━━━━━･❪ ✧ ❫ ･━━━━━━━ ❜
 
-Basic DNI criteria, open for int! May not reply due to me being busy.
+Basic DNI criteria, open for int! May not reply due to me being busy. Still editing other sites!
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=red&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
