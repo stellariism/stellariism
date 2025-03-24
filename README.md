@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/7a1cd36ce64976868d892f937afb9760/ecdd0b10f2a6b90c-62/s2048x3072/712ce980a295bf5cac46df819fcaae72a4392e25.pnj"/>
+<img src="https://64.media.tumblr.com/c66f911670983fd7ce97f259c4c19612/3be22cedc5d45724-bb/s1280x1920/ee0526fa02159651538e122728d6351c832176c2.pnj"/>
   <div align="center">
 ❛ ━━━━━━━･❪ ✧ ❫ ･━━━━━━━ ❜
 
-Basic DNI criteria, open for int! May not reply due to me being busy. Still editing other sites!
+Basic DNI criteria, open for int! May not reply due to me being busy. Still editing other profiles!
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=red&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
