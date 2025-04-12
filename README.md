@@ -5,7 +5,7 @@
 
 Basic DNI criteria, open for int! May not reply due to me being busy. Still editing other profiles!
 
-![](https://komarev.com/ghpvc/?username=steIIarism&color=blue&style=flat&label=PROFILE+VIEWS&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=Ivanddal&color=blue&style=flat&label=PROFILE+VIEWS&abbreviated=true)
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
