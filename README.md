@@ -1,6 +1,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/fc2680cdb6b6d82ba248b2df6192fdcd/88f2b02b2a4ac9ce-cf/s640x960/1a35c1e3f8e7392ccb40d16ad1ded05e18842e94.pnj"/>
   <div align="center">
+    
+  Graphics credit: [Ilocket](https://www.tumblr.com/llocket/751209790768873472/sunny-basil-matching-graphics-%F0%93%82%83?source=share)
+
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜
 
