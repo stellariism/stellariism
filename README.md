@@ -1,8 +1,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/c66f911670983fd7ce97f259c4c19612/3be22cedc5d45724-bb/s1280x1920/ee0526fa02159651538e122728d6351c832176c2.pnj"/>
   <div align="center">
-❛ ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━･❪ ✧ ❫ ･━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━ ❜
-    
+❛
+━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜
+
 |HUGE cudcomf, please cuddles :3 | Widely nonverbal | [Rentry V1](https://rentry.co/belovedstar) | [Rentry V2](https://rentry.co/Artisticflow) | [Int Info](https://rentry.co/starscomfort) | 
 
 
