@@ -7,7 +7,7 @@
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜
 
-| HUGE cudcomf, please cuddles :3 | Widely nonverbal | [Rentry](https://rentry.co/Lovedinparadise) | [Int Info](https://rentry.co/starscomfort) | [Strawpage](https://ticklesyou.straw.page/) | 
+| HUGE cudcomf, please cuddles :3 | Widely nonverbal | [Rentry](https://rentry.co/Lovedinparadise) | [Strawpage](https://ticklesyou.straw.page/) | 
 
 <img src="https://cdn.discordapp.com/attachments/1278361053457154078/1369616588063510638/image.png?ex=681c8258&is=681b30d8&hm=0e9a98494525427fe63dfb511b0a9f9e189f1bfb6b18d4724230f62e0fec7f34&"/>
 
