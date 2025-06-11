@@ -8,9 +8,9 @@
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜ 
 
-PT centered acc, Im by the hyv/alnst areas mostly. Semi-nonverbal, Im not a shy talker, I just have nothing to say. Huge cudcomf tho, please cuddle me. ENG/FIL r my languages
+PT centered acc, Im by the hyv/alnst areas mostly. Semi-nonverbal, Im not a shy talker, I just have nothing to say. Huge cuddle comfort tho, i prefer silent company than talking, please cuddle me. ENG/FIL r my languages
 
-Iwec/dni if you talk "freaky" and if ur <14. Im a TAKEN man, I dont like being flirted with to begin with. Read the rest on rentry
+Iwec/dni if you talk "freaky" and if ur <14. Im a TAKEN man, I dont like being flirted with. Read the rest on rentry
 
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜
