@@ -15,9 +15,9 @@ Iwec/dni if you talk "freaky" and if ur <14. Im a TAKEN man, I dont like being f
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜
 
-<img src="https://file.garden/aDLNm-JCI0dbIn6A/Untitled900_20250610215720~2.jpg"/>
+<img src="https://file.garden/aDLNm-JCI0dbIn6A/14b2a2ab4ccd4ae9a1650d23ef284a52~2.jpg"/>
 
-[Judger](https://github.com/ChromaDrift)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [Yapper](https://github.com/yurivampire) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[Listener](https://github.com/steIIarism)
+Me and da gang: [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/VERIFIEDreality)
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=blue&style=flat&label=𓆩♡𓆪&abbreviated=true)
 
