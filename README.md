@@ -1,6 +1,5 @@
 <p align="center">
-<img src="https://file.garden/aDLNm-JCI0dbIn6A/Untitled899_20250610230158.png"/>
-<img src="https://file.garden/aDLNm-JCI0dbIn6A/espresseleine.png"/>
+<img src="https://file.garden/aDLNm-JCI0dbIn6A/20250715_010751.jpg"/>
   <div align="center">
     
 [Rentry](https://rentry.org/indeceit) | [Me and Bro](https://rentry.org/lunaestrela)
@@ -20,8 +19,6 @@ Iwec/dni if you talk "freaky" and if ur <14. Im a TAKEN man, I dont like being f
 Me and da gang: [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/VERIFIEDreality)
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=blue&style=flat&label=𓆩♡𓆪&abbreviated=true)
-
-<img src="https://file.garden/aDLNm-JCI0dbIn6A/Untitled899_20250610212313.png"/>
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
