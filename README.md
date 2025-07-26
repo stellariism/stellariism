@@ -16,7 +16,7 @@ Iwec/dni if you talk sexually(esp towards me) and if ur <14. Im a TAKEN man, I d
 
 <img src="https://file.garden/aDLNm-JCI0dbIn6A/14b2a2ab4ccd4ae9a1650d23ef284a52~2.jpg"/>
 
-Me and da gang: [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/unscathedd)
+Me and da gang: [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/verifiedreality)
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=blue&style=flat&label=𓆩♡𓆪&abbreviated=true)
 <!--
