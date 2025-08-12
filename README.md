@@ -2,7 +2,7 @@
 <img src="https://file.garden/aDLNm-JCI0dbIn6A/20250715_010751.jpg"/>
   <div align="center">
     
-[Rentry](https://rentry.org/indeceit) | [Me and Bro](https://rentry.org/lunaestrela)
+[Rentry](https://rentry.org/kingofthecourtx) | [Me and Bro](https://rentry.org/lunaestrela)
     
 ❛
 ━━━━━━━━━･❪ ✧ ❫･━━━━━━━━━ ❜ 
