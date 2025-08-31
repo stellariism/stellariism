@@ -5,11 +5,9 @@
     
 [Rentry](https://rentry.org/kingofthecourtx) | [Me and Bro](https://rentry.org/lunaestrela)
 
-```PT centered acc, Im by the hyv/alnst areas mostly.```
+```PT centered acc. Semi-nonverbal, Im not a shy talker, I just have nothing to say```
 
-```Semi-nonverbal, Im not a shy talker, I just have nothing to say.```
-
-```Huge cuddle comfort tho, i prefer silent company than talking, please cuddle me. ```
+```C+H freely, I prefer silent company more than talking```
 
 ```ENG/FIL r my languages```
 
