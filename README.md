@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/77997316407a8e22e5f2e7fad82e7b70/abf49e99cd3e9f51-74/s500x750/d59855c0bd37405a8b35fa239dba627505426e2d.pnj" width="138"/><img src="https://64.media.tumblr.com/cef4b4707cc33bb1f60dfdd376d5fe34/abf49e99cd3e9f51-93/s500x750/1bbd19f24b9a75b87cc68c597d85716d54ec826e.pnj" width="138"/>
+<img src="https://pbs.twimg.com/media/GjvzkQaacAEyswy?format=jpg&name=large"/>
   <div align="center">
 
 ________________________________________________________________________
@@ -10,7 +10,7 @@ ________________________________________________________________________
 
 ```Read the rest on rentry```
 
-Graphic credits: S1lencedsxlt [˗ˋ♡ˊ˗](https://www.tumblr.com/s1lencedsxlt?source=share)
+Art → [Ocarinadoll](https://x.com/ocarinadoll)
 ______________________________________________________
 
 [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/verifiedreality)
