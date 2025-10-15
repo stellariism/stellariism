@@ -12,6 +12,7 @@ ________________________________________________________________________
 
 Art → [Ocarinadoll](https://x.com/ocarinadoll)
 ______________________________________________________
+<img src="https://file.garden/aDLNm-JCI0dbIn6A/goons.PNG" width="200"/>
 
 [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/verifiedreality)
 
