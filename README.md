@@ -17,6 +17,9 @@ ______________________________________________________
 [C](https://github.com/ChromaDrift)‎ [K](https://github.com/yurivampire) [X](https://github.com/steIIarism) [Z](https://github.com/verifiedreality)
 
 ![](https://komarev.com/ghpvc/?username=Ivanddal&color=blue&style=flat&label=𓆩♡𓆪&abbreviated=true)
+
+_______________________________________________________
+[PLEASE READ](https://rentry.co/t8bmgnxp) . Thanks [Vince](https://github.com/V1NCENSE) 4 making this
 <!--
 **MirroredVeracity/MirroredVeracity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
